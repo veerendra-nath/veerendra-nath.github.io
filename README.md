@@ -1,1 +1,0 @@
-# veerendra-nath.github.io
